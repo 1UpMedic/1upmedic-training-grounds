@@ -1,1 +1,0 @@
-# 1upmedic-training-grounds
